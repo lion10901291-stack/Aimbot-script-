@@ -1,0 +1,2 @@
+# Aimbot-script-
+Click shot 
